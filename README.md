@@ -1,4 +1,1 @@
 kutta kamina sala
-
-xvxvxvxexxxxxxxxxxxxxxxx
-xxxxxxxxxxxxxxxxxxxxxxxxx
